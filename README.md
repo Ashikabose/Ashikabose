@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ashikabose
+- 👀 I’m interested in 2D character Design
+- 🌱 I’m currently learning 2D environment art
+- 💞️ I’m looking for commission.
+- 📫 How to reach me https://www.instagram.com/ashika_boss_official/
